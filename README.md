@@ -3,7 +3,7 @@
 - 🌱 I’m currently trying to survive
 - 💞️ I’m NOT looking to collaborate on anything, just chillin' mate
 - 📫 How to reach me?? Please don't
-- 😄 Pronouns: I have no time for this...
+- 😄 Pronouns: Whatever you want, I have no time for this...
 - ⚡ Fun fact: There a billions of millions of star in the universe, you are not one of them.
 
 <!---
